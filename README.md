@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Enigma MC<br>🚀 The best minecraft server 😁
+🔭 I’m currently working on Enigma MC and its almost done !<br>🚀 The best minecraft server 😁
 
 
 ## 🌐 Socials:
